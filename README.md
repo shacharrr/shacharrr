@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @shacharrr
 - 👀 I’m interested in alot of stuff
-- 🌱 I’m currently in a vacation
+- 🌱 An aerospace undergrad
 - 📫 How to reach me? shachar262@gmail.com for anything
